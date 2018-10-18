@@ -1,2 +1,2 @@
-# primera-entrega
-Jueves, 18 de octubre 2018 - Multimedia II
+# portafolio
+Jueves 11 de Octubre del 2018
